@@ -1,0 +1,1 @@
+# -Tayyor_prezentatsiyabot
